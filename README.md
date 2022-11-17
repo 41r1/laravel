@@ -6,5 +6,3 @@ banan shop kus banaane saab osta :D
 
 ![image](https://user-images.githubusercontent.com/93116819/199419984-4c447c5e-9125-4407-894c-8ff2341800c6.png)
 ![image](https://user-images.githubusercontent.com/93116819/199420001-a1c3c855-a461-4e1e-a9fb-e4aedee7cb47.png)
-
-![image](https://user-images.githubusercontent.com/93116819/199419728-d582c1d7-c744-4a57-9cff-8c69464995fa.png)
